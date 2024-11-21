@@ -81,6 +81,3 @@ LinkedIn: Sarumi Sheu Hammad
 
 
 ---
-
-Let me know if you'd like further edits!
-
